@@ -1,0 +1,2 @@
+- Hola, soy @CrashPhantom04
+- Y sí, soy adicto al suicidio.
